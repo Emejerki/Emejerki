@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Emejerki
+- 👀 I’m interested in videogames and fashion!
+- 🌱 I’m currently learning full stack web programm
+- 💞️ I’m looking to collaborate on easy projects
+- 📫 How to reach me through my email: mddiazdd@gmail.com
